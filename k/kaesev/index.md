@@ -47,18 +47,6 @@ Als Käsereimilch gelten auch
     von Milch und Sahneerzeugnissen, zur Herstellung von Molkeneiweißkäse.
 
 
-
-Buttermilcherzeugnissen dürfen keine Bindemittel zugesetzt sein. Die
-Milch kann ganz oder teilweise durch Schaf-, Ziegen- oder Büffelmilch
-ersetzt sein. Die in den Sätzen 1 und 2 genannten Milcherzeugnisse
-können ganz oder teilweise durch entsprechende Erzeugnisse aus Schaf-,
-Ziegen- oder Büffelmilch ersetzt sein. Die in den Sätzen 1 bis 5
-genannten Erzeugnisse dürfen miteinander vermischt und durch Entzug
-von Wasser oder unter Anwendung von Verfahren zur Konzentration des
-Milcheiweißes durch Entzug anderer Milchinhaltsstoffe eingedickt sein,
-wobei der Anteil des Molkeneiweißes am Gesamteiweiß nicht größer sein
-darf als in der Käsereimilch.
-
 (3) Käse sind auch Erzeugnisse,
 
 1.  die aus Süßmolke oder Sauermolke durch Entzug von Wasser, auch unter
